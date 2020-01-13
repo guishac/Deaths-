@@ -1,7 +1,5 @@
-# Ny-Deaths-
+# Deaths-
 ![](https://media.giphy.com/media/Qx4ltILRcYzHK50B9R/giphy.gif)
- 
-# Death
  
  
  
